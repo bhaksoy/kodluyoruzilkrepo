@@ -1,0 +1,2 @@
+# KodluyoruzİlkRepoÖdev
+
